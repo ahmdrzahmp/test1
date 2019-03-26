@@ -1,0 +1,8 @@
+cgtccggt
+kgvtyyttyg
+
+
+
+
+gjccttcytytytyc
+
